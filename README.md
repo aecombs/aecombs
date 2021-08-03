@@ -1,4 +1,4 @@
-Hi, I’m Alicia! I used to sing opera and now I play with computers.
+Hi, I’m Alicia! I used to sing opera, but now I play with computers.
 
 **Linkedin**: linkedin.com/in/aecombs
 
